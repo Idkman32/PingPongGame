@@ -1,2 +1,2 @@
 # PingPongGame
-This is not harmful. Backup your wallpaper. Made by Idkman32
+This is COULD be harmful. Backup your wallpaper. Made by Idkman32
